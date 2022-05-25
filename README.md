@@ -4,7 +4,7 @@
 - 💞️ I’m looking to  estagio na areass de tecnologia.
 - 📫 How to reach me  
 - whatssap (92)981353156
-- email.vitorcarioca17@gmail.com  
+- E-mail:vitorcarioca17@gmail.com  
 - linkedin:www.linkedin.com/in/vitor-carioca-bb99ab203
 
 <!---
